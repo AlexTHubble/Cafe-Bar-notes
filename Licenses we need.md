@@ -1,0 +1,3 @@
+- Victualer License: Required for food and services to the public
+	- https://www.boston.gov/departments/licensing-board/how-get-common-victualler-license
+- 

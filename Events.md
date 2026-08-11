@@ -1,0 +1,5 @@
+- Weekly MTG night
+- Warhammer nights?
+- Paint and sip miniatures? 
+- Rent a DM learn how to play dnd
+- Private event space? (needs appropriate space)
